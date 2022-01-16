@@ -1,1 +1,0 @@
-# promena-blog.github.io
